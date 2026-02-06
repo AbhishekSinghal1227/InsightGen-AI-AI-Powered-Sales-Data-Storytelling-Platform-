@@ -1,1 +1,1 @@
-# InsightGen-AI-AI-Powered-Sales-Data-Storytelling-Platform-
+# InsightGen-AI(AI-Powered-Sales-Data-Storytelling-Platform)
